@@ -1,1 +1,1 @@
-We are a creative studio, of course we got our own public starter .)
+We are a creative studio, of course we have our own public starter .)
